@@ -1,3 +1,7 @@
+<div align="center">
+
+all art by my [Chance](https://github.com/mewkris) ♡
+</div>
 <p align="center"><img src="https://i.postimg.cc/y8KkS1T1/SPOILER-4828934234.png" alt=""/><br/></p></p>
 <p align="center"></p>
 <div align="center">
