@@ -6,5 +6,5 @@ all art by my [Chance](https://github.com/mewkris) ♡
 <p align="center"></p>
 <div align="center">
 
-[straw](https://chance-1337.straw.page) ⎯ [ata](https://guest-1337.atabook.org/)
+[straw](https://chance-1337.straw.page) ⎯ [ata](https://guest-1337.atabook.org/) ⎯ [listo](https://listography.com/gurire96)
 </div>
